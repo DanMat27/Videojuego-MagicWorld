@@ -9,4 +9,4 @@ Video Trailer del videojuego: https://youtu.be/FQbSC3dupxc
 
 Video completo del videojuego: https://youtu.be/VBUDrAWueiA
 
-Autores: DanMat27 y LSH.
+Autores: DanMat27 y Laura Sánchez.
